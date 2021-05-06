@@ -1,0 +1,2 @@
+Recipe:-
+First take a big bowl and put the flour into the bowl. Put oil, water and salt and knead the dough till it is soft. Then rest the flour fot 10 minutes. Then rool the flour into the size of a chapathi. Then spread the pizza sauce on the base. Then spread cheeze on the base and spread the vegetables on the base prepared. Then put a bit of cheeze to hold the vegatables. Then put the pizza on a tawa on a low flame for 15 minutes and the pizza is ready.
